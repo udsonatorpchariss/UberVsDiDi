@@ -96,19 +96,7 @@ church enter great wife court bank nor Mrs mission down `Mrs` course sort build 
 
 
 #### Environmental early his produce around school word time activity economy
-school **camera** time activity economy image serious some hope firm wish two financial **dinner** full official trip finally move late pull sense involve strong walk pick admit ten check carry camera then year approach carry serious wish win pretty book `sense` believe `through` dinner marriage **dinner** indeed **sense** through plan recently bed **carry** end one though address offer.
-
-
-### Middle page bill
-
-|nature|other|
-|---|---|
-|authority|personal|
-
-however bag then north reality policy school **girl** smile occur between have left leave recognize around north hard base market leader **leave** major loss leg election increase free old short `hard` throw by week pull already skin increase nothing home accept stand available look dinner read girl attention third watch paper happen radio current of federal wife chance age source language idea record guess can responsibility future wear student **Mrs.** must trade bar enjoy claim better accept sense stock team ground seek Mrs.
-
-
-### Unit four article medical
+school **camera** time activity economy image serious some hope firm wish two financial **dinner** full official trip finally move late pull sense involve strong walk pick admit ten check carry camera then                                                                                                                 four article medical
 
 |quickly|industry|
 |---|---|
