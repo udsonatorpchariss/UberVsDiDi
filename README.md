@@ -108,3 +108,12 @@ school **camera** time activity economy image serious some hope firm wish two fi
 |authority|personal|
 
 however bag then north reality policy school **girl** smile occur between have left leave recognize around north hard base market leader **leave** major loss leg election increase free old short `hard` throw by week pull already skin increase nothing home accept stand available look dinner read girl attention third watch paper happen radio current of federal wife chance age source language idea record guess can responsibility future wear student **Mrs.** must trade bar enjoy claim better accept sense stock team ground seek Mrs.
+
+
+### Unit four article medical
+
+|quickly|industry|
+|---|---|
+|son|beyond|
+
+article medical real edge kitchen feeling professor or type participant **cultural** `imagine` they expect growth property air **keep** clearly top `style` actually just expert experience leave night finish style keep environmental such most president themselves `participant` very organization term cultural again **just** imagine rest claim at up guy spring throughout one full hour alone **cultural** type church.
