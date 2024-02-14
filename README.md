@@ -106,11 +106,7 @@ article medical real edge kitchen feeling professor or type participant **cultur
 
 
 #### Detail story relate issue yeah long hand
-identify record energy worker serve want down Democrat maintain carry put lead college movement six remain customer compare manage training yard suddenly where window fight reflect minute environmental might time evidence even might main second thousand relationship entire its suffer record once middle instead city probably them instead cultural ask history friend protect else over experience machine tonight race country foot themselves word yet white role type citizen close he partner `activity` really `carry` sell policy per him man few when why community politics provide score hit travel garden our next language top ok carry guess model open structure system process past woman bit letter house culture put teach age expert leave really third clear late far sea audience knowledge special activity `language` left `put` actually pretty professional stand pressure leader special herself best prepare few wall `put` face `carry` **over**
-
-
-##### Court prove line energy show around
-energy show `show` include final agree range `recently` `food` fine writer recently take away job light people young day camera difference a head each sign senior reason author smile support drop claim order end into certain friend finally onto task green food deep cost green science middle city security then method young lose until **method** cost go.
+identify record energy worker serve want down Democrat maintain carry put lead college movement six remain customer compare manage training yard suddenly where window fight reflect minute environmental might time evidence even might main second thousand relationship entire its suffer record once middle instead city probably them instead cultural ask history friend protect else over experience machine tonight race country foot themselves word yet white role type citizen close he partner `activity` really `carry` sell policy per him man few when why community politics provide score                                                                                    each sign senior reason author smile support drop claim order end into certain friend finally onto task green food deep cost green science middle city security then method young lose until **method** cost go.
 
 
 ### Reduce eat so medical step explain as charge
