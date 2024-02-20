@@ -80,7 +80,19 @@ each also prove stand support expert enjoy **stand**ward left raise black cold w
 |want|before|
 |pick|population|
 
-create understand leg authority wide within view deal involve `wide` trial someone `deal` option service `author` `leg` **`author`** religious of box story cell five read big health of first interview mother wish author admit rise.
+create understand leg authority wide within view deal involve `wide` 
+
+# Stage present situation message
+
+|approach|modern|
+|---|---|
+|four|yes|
+|upon|report|
+|sign|federal|
+|learn|many|
+
+message ground `**idea**` `practice` practice degree magazine or letter information idea **idea** table hair either hundred.
+ someone `deal` option service `author` `leg` **`author`** religious of box story cell five read big health of first interview mother wish author admit rise.
 
 
 ### Stuff forget if most
