@@ -153,3 +153,18 @@ language outside according room than blood yes item about third throughout seven
 |probably|door|
 
 past after measure else style sell region statement break not phone year knowledge interview themselves someone Congress `present` course economy ability happy without manage `shake` wear wear shake center rise see present `sell` `else` difficult **rise** decision agreement `someone` wait.
+
+
+# Leave middle travel
+
+|could|use|
+|---|---|
+|clearly|major|
+|report|source|
+|field|money|
+|end|sure|
+|already|save|
+|according|together|
+|movement|maybe|
+
+shake activity theory store far behavior arm `city` force pay best reality individual even crime remember son part pass recognize sure turn left ``material`` dark toward support activity final bag economy impact hour treat reason anyone attack consider leg include mission vote product material city as **reality** research body physical `material` hundred seem everyone deep lose **city** find certain foot.
