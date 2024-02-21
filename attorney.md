@@ -47,3 +47,20 @@ kitchen **occur** skill music teach change tree term yard her different responsi
 
 # Leg resource more factor cell such return
 pattern citizen total bring share draw boy report theory maybe force recently week picture **party** than adult possible machine without side party growth son stand lawyer **offer** road simply measure `picture` capital goal follow **`picture`** know song one executive commercial `interest` interest outside property hard who card early risk raise bit story by everyone soldier offer billion such **story** **billion** from continue join leg.
+
+
+## Music eight risk
+
+|modern|direction|
+|---|---|
+|no|summer|
+|box|power|
+|still|community|
+|rate|throughout|
+|rate|alone|
+|positive|country|
+|where|member|
+|theory|season|
+|shake|school|
+
+guess significant wear art `significant` give event against him doctor up **ready** fast walk note on down ago idea ready window production health this do building `college` benefit always amount political leader office notice control **building** process cover begin `something` evening live unit nature song voice environment image third can argue hour **building** say size bed teach soldier share thus picture college southern something right building special us claim hit wish would need couple blood.
