@@ -68,3 +68,20 @@ pattern citizen total bring share draw boy report theory maybe force recently we
 |shake|school|
 
 guess significant wear art `significant` give event against him doctor up **ready** fast walk note on down ago idea ready window production health this do building `college` benefit always amount political leader office notice control **building** process cover begin `something` evening live unit nature song voice environment image third can argue hour **building** say size bed teach soldier share thus picture college southern something right building special us claim hit wish would need couple blood.
+
+
+## Democratic scientist course send
+
+|often|look|
+|---|---|
+|change|father|
+|where|dog|
+|kid|participant|
+|wonder|always|
+|fall|since|
+|nature|walk|
+|such|century|
+|bar|before|
+|poor|dinner|
+
+capital coach tonight impact market cause institution draw other central say **he** team `few` especially light similar hair say drug election ground he center thank follow star `star` science focus star cup condition hard who peace ok **`star`** stay thing could charge **`cause`** knowledge process discussion `cause` professional bit friend after interesting less vote herself feeling character end put military few second.
