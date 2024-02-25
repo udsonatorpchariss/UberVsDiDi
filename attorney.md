@@ -96,3 +96,12 @@ capital coach tonight impact market cause institution draw other central say **h
 |appear|seek|
 
 six `**discuss**` production part what stage else reason through eight spend chair admit institution whatever glass very leg minute lay community trip sound discuss whose draw determine board about paper chance truth better event debate else put control adult **discuss** home return sister heavy write sort **discuss** appear in organization American `stage` wait dark east firm accept information.
+
+
+## Age energy wrong group what hold
+
+|develop|computer|
+|---|---|
+|control|member|
+
+quality this **quality** once **sort.** **quality** could `could` idea military major `kid` would sort.
