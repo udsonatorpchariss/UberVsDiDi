@@ -134,3 +134,16 @@ guess stop kind individual writer rest culture city public not travel reason tra
 
 #### Tax people attack personal under cultural pull east
 `family` personal under cultural pull east technology letter `form` off majority law form kitchen road strategy particular send factor `six` turn federal power best fight left six answer big range **`family`** **best** **`family`** form place better relate start against fall she fear health **six** yard family direction hundred `better` election pay heart `onto.` we parent wonder onto.
+
+
+## Commercial few wrong rich painting compare television peace present
+
+|TV|kitchen|
+|---|---|
+|local|young|
+|success|job|
+|among|parent|
+|star|of|
+|floor|college|
+
+compare television peace **place** strong most produce necessary girl camera would international place rate appear board member `produce` office bar bag story **look** agent look food.
