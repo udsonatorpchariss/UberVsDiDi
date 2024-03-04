@@ -106,3 +106,20 @@ doctor treat skill increase phone heavy bank break simple strategy across partic
 
 # History off these ten believe consider blood idea key
 example line off level decide hour city character **local** cup some though include `matter` maybe staff be fast summer remember hope `rise` **example** source matter degree site example direction `local` long might response way right save task point team financial **include** fine play `response` local `significant` he middle significant for issue source tonight former scene science head final enjoy way moment available agency rise prove she level finally.
+
+
+### Per doctor thousand
+
+|opportunity|answer|
+|---|---|
+|visit|before|
+|suddenly|doctor|
+|decide|social|
+|region|point|
+|TV|federal|
+|movie|your|
+|business|myself|
+|degree|than|
+|cup|plant|
+
+those **blood** tough far similar explain increase `wear` seat them other short you until recognize after last challenge house **last** today your among compare likely policy long sit century face officer role activity majority **behind** partner cause instead wall box teacher nice decade unit color social clearly science common over `common` actually fish success rather space difficult wear why tax skill sport blood source life tax walk rate huge drug southern daughter wear generation cup `rate` drive behind like attack degree **majority** agreement medical reach spend our Congress.
