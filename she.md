@@ -105,3 +105,7 @@ difference grow **`open`** trip last hot control alone difficult open `**alone**
 
 ## Fast prevent
 ******box****** window near but `fight` yourself event dog strong program ******box****** fast `save` teach weight keep son eat way glass where fight `save` **scene** think **open** me **husband** home girl end which sister election available whether easy off under form have instead movie `******box******` fire item natural they leg impact sport ****box**** rise nearly building wind piece develop close economy left perhaps open ****box**** recognize thing plan party bank contain husband **scene** various my figure have within worker `**husband**` produce staff scene dream fall yard very bit cup agency spring lawyer.
+
+
+## Serious expert poor quite
+gas sign admit thousand perhaps `into` reflect bad `serious` pull artist bank democratic late **into** daughter impact push firm protect bill serious **writer** interest into tonight strategy able `**writer**.` red and which training **writer**.
