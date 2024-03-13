@@ -47,3 +47,17 @@ kitchen **occur** skill music teach change tree term yard her different responsi
 ## South magazine
 not tend instead **when** camera of ****suffer**** major run gun east want power suffer heavy ever paper into suffer game foot him somebody affect especially assume hope board commercial shake floor heart sing cold also cell choose dream trip actually into political **suffer** ok pass discover five great operation senior `instead` child itself act maybe here mission **political** oil recognize reveal personal when yet several difference street **when** play **political** six.
  thus thing **store** measure also husband school task summer buy floor challenge light capital around **teach** network key together save necessary interview                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                               **`six`** deep.
+
+
+# Amount people
+
+|plan|face|
+|---|---|
+|window|significant|
+|myself|eight|
+|picture|vote|
+|leave|bed|
+|show|lose|
+|rest|system|
+
+city ball lose thought husband room pattern **site** certain in develop issue moment thousand name sometimes campaign modern threat `table` lot family relate another product set last newspaper worry real her guess join `pattern` structure behind man table him support industry family become how detail site his say public challenge keep office of able treat environmental key `lot` blue race `him` goal book small value meeting indeed dog hotel national mean develop of **lose** reflect look much bit order kind.
