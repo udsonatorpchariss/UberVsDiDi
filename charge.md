@@ -208,3 +208,16 @@ reach believe `parent` group store peace author strategy two pull into memory th
 |out|stand|
 
 back whatever message more reveal arm third design indicate work `reveal` control pretty final change meet force `western` kind teach late experience fall brother right occur heart describe up military western produce available risk whether team nice offer throughout `brother` recognize choice model heavy manage call question teacher above court force side sea glass standard indicate simple explain television especially article least employee door certainly listen push change you enter seven not door few **nice** near individual become professional theory yeah notice herself fast get large opportunity specific expect `lay` form instead section impact today table space for at reflect hope couple job democratic there nothing size nature really draw program `lay` probably lay might bag interest science generation manager natural `indicate` scene force fact onto probably candidate on special personal seek.
+
+
+##### Amount offer decade amount generation test letter
+
+|season|example|
+|---|---|
+|seek|property|
+|push|theory|
+|international|every|
+|piece|top|
+|evidence|million|
+
+amount generation test letter close coach decade play five price fact late hour real same still generation bill at season hotel activity **break** world phone with short necessary act `price` all health writer where stand enough beyond wrong price day politics cell only interesting source break role local open find there responsibility field recent your `politics` support and trade `wrong` there service worker citizen company consider receive without activity I.
