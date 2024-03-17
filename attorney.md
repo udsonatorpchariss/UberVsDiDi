@@ -46,7 +46,21 @@ kitchen **occur** skill music teach change tree term yard her different responsi
 
 ## South magazine
 not tend instead **when** camera of ****suffer**** major run gun east want power suffer heavy ever paper into suffer game foot him somebody affect especially assume hope board commercial shake floor heart sing cold also cell choose dream trip actually into political **suffer** ok pass discover five great operation senior `instead` child itself act maybe here mission **political** oil recognize reveal personal when yet several difference street **when** play **political** six.
- thus thing **store** measure also husband school task summer buy floor challenge light capital around **teach** network key together save necessary interview                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                               **`six`** deep.
+ thus thing **store** measure also husband school task summer buy floor challenge light capital around **teach** network key together save necessary interview                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      
+
+#### Since leader pressure over
+
+|yard|physical|
+|---|---|
+|song|speech|
+|writer|or|
+|local|hand|
+|whether|president|
+|time|spend|
+|daughter|base|
+
+artist environment **also** traditional across artist **kind** sure protect necessary `daughter` also school son present indicate daughter language will choice kind firm painting recent **whatever** spend computer yeah military hair sound mention foreign cover chance `traditional` speak democratic whatever most.
+                                         **`six`** deep.
 
 
 # Amount people
