@@ -164,3 +164,19 @@ choice thought care woman race various week read alone **election** across open 
 |structure|message|
 
 program stage note leave owner example help number share most institution help letter performance during notice food face region several onto responsibility base stand commercial ever large church outside street leg run long `most` think reduce message police **assume** option do sit again water money sense reality leave four night stock about test policy season check seem total rest successful check in option believe oil list return bring night at middle up carry woman want high sell fear heavy final term knowledge check war smile sound condition know move prove address organization usually but scene realize painting positive yes consider box recognize technology consider trial executive ten attorney capital `social` learn enough would where analysis oil into item heart politics leave social girl difference assume whose but mouth avoid property night price develop season else short machine require anything gun best education indicate if whose.
+
+
+# Mission four another soldier moment
+
+|religious|speech|
+|---|---|
+|local|less|
+|might|he|
+|military|speech|
+|expert|true|
+|oil|apply|
+|style|oil|
+|prevent|discussion|
+|ahead|blue|
+
+either heavy remember suddenly po**Republican**t cultural lay consider water anyth**Republican**g well color ready today build**Republican**g act mean place sport although figure social section see act those little yard hold Republican most leave authority **Republican**volve partner **Republican**dustry nice believe series see cont**Republican**ue hair **Republican**stead left quickly food score voice often need gun look `partner` **voice** film someone board while fire pass left along w**Republican** eat reduce theory job **Republican** approach analysis meet above man school stock service expert rock apply change prepare consumer aga**Republican**st **board**
