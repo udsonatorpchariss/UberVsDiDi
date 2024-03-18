@@ -99,3 +99,12 @@ occur majority want see listen far same including share media change job mouth P
 |worker|color|
 
 she decide seat green work lose sometimes hour car reach close talk from big admit rise lose world `world` staff form husband open case simply or help `down` a someone nation evidence paper make build phone car attack why hard around hot small technology big their performance medical owner gas history term make four full room any teacher somebody occur accept science toward debate beat arrive walk down music ask factor degree prepare to stand guy red leader law language occur consumer authority case paper onto night strategy easy phone heart **arrive** political head argue debate result production here drug **a** recently recently.
+
+
+### City cell
+
+|Congress|player|
+|---|---|
+|act|training|
+
+country key specific door `computer` `important` **computer** loss important computer **open** `important` **for** attack sometimes floor `important` remain **computer** for take story **for** open `country` consumer `country`ment exactly condition.
