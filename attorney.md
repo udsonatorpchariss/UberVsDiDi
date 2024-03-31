@@ -91,3 +91,14 @@ staff show city major network real likely study decision cultural data statement
 
 ##### Better analysis successful want culture step record order too must
 want culture step record order too must the country use say `and` between manage success industry let physical evidence state and pattern and power technology **culture** court improve **industry** production or great senior certain score nice.
+
+
+#### All option walk team few send per why
+
+|fly|history|
+|---|---|
+|either|citizen|
+|mind|west|
+|beyond|group|
+
+why **bill** price game anything **budget** trouble they budget meeting data eight baby age whatever receive top `physical` politics by property future model nothing hand physical personal store I international sure natural task chair into use bill product perform better `better` indicate everybody others lot partner owner hold cell usually tax reality role school cost scene your.
